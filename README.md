@@ -1,2 +1,0 @@
-# ting-ting
-# anyone
